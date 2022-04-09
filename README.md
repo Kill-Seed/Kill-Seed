@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kill-Seed
+- 👀 I’m interested in ... The World
+- 🌱 I’m currently learning ... How to Take Over the World
+- 💞️ I’m looking to collaborate on ... World Domination
+- 📫 How to reach me ... @ the Arena
